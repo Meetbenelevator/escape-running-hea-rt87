@@ -1,4 +1,4 @@
-#  
+#  hidden Scripts for escape running head is the best escape running head Script, featuring auto-upgrade and auto-farm. Safe and powerful for all your
 
 
 
